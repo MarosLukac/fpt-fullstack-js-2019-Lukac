@@ -1,7 +1,7 @@
 # fpt-fullstack-js-2019-Lukac
 
 
-## GGGGkjasokd
+## Jahodka
 
 oijoijasoijj js oijw joiwj
 
