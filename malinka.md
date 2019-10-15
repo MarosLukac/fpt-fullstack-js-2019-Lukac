@@ -1,9 +1,12 @@
-# fpt-fullstack-jgs-2019-Lukac
+# fpt-fullstack-jgs-2šáíšéľ019-Lukac
 
 
-## Malinka
+## Malinka **čýťáľíšťč**
 
-oijoijasoijj js malinecvka
+oijoijas
+fdhjisgl
+
+hgfgGSJHýťžýčášťoijj js malinecvka
 
 * hdoaijoijd
 * podjk0a**k**po9sk
@@ -13,7 +16,7 @@ uihdauisohjdoai                     nkjhnkl
 
 1. iushf
 2. hfudfsaaish
-3. hfiuehoijf
+3. hfiuehFREJQTIťžčšťčľšoijf            ýá
 
 
 
