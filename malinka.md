@@ -1,22 +1,26 @@
 # fpt-fullstack-js-2019-Lukac
 
 
-## Malinka
+## Mal* ink* a
 
-oijoijasoijj js malinecka jwnadn
+oijoija** soijj js malia kjnecka jwnadn
 
-* hdoaijoijd
+* hdoa h jakl ijoijd
 
     1. iushf
     2. hfuish
     3. hfiuehoijf
-* podjk0apo9sk
+
+2. hfuish
+* po jwkj djk0hdj ko apo9sk
     *jmpoajpwpop
 * iuhasuisyh9idu
 
 uihdauisohjdoai
 
 1. iushf
+2. hfuish
+
 2. hfuish
     * hdauioi oiwhjoic
 3. hfiuehoijf
