@@ -1,22 +1,184 @@
-# fpt-fullstack-js-2019-Lukac
+# fpt-fullstack-js-2019-Lukac   # vjfko;fjbks;
+# fptfptfpt
 
-
-## Jahodkaoijaij
+## Jahodka ale coze aoijaij  
 
 oijoijasoijj js oijw joiwj
 
-* hdoaijoijd
-* podjk0apo9sk
-* iuhasuisyh9idu
+* hdoaijoijd       vdgartq
+* po**d**jk0apo9sk
+* iuhasuisyh9idu            jiovg;jsfig;
 * uihdaowj
   * jdaiwooi
   * dnoidjwoid
 
+### ajajajajajajaj
 
-
-uihdauisohjdoai dhaowj jdoaijojd
+uihdauiso+*/*+hjdoai dhaowj jdoaijojd
 
 1. iushf
 2. hfuish
-3. hfiuehoijf
+3. hfiueh4627319oijf                   vfjdioglajdigo;a
 4. adkwp9ok
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+nflafdhjakflhdkja;fl
