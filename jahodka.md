@@ -3,20 +3,26 @@
 
 ## Jahodkaoijaij
 
-oijoijaahiwji soijj js oijw joiwawdjkj
+oijoijaahiwj1. iushf
+2. hfudauiwhnuinish
+3. hfiuehoijf
+4. adkwp9oki soijj js oijw joiwawdjkj
 
 
-uihdauisohjdoai dhaowj jdoaijojd
+uihdauisohjdoai dhaowda olimj jdoaijojd
 
 1. iushf
-2. hfuish
+2. hfudauiwhnuinish
+3. hfiueho1. iushf
+2. hfudauiwhnuinish
 3. hfiuehoijf
+4. adkwp9okijf
 4. adkwp9ok
 
 2. hfuish
 
 * hdoaijoijd
-* pofiueh0apo9sk
+* pofiudgyagh eh0apo9sk
 
 2. hfuish
 3. hfiu 
@@ -26,13 +32,15 @@ uihdauisohjdoai dhaowj jdoaijojd
         * huewojoi
 * uihdaowj
   * jdaiwooi
-  * dnoidjwoid
+  * dnoidjwoid nijudnaiuwj
 
 
 
 uihdauisohjdoai dhaowj jdoaijojd
 
+ihdauisohjdoai dhaowj jdoa
+
 1. iushjdaijif
-2. hfuish
+2. hfuish nkjdlanjo
 3. hfiuehugaydiw
 4. adkwp9ok
