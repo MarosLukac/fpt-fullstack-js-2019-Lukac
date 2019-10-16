@@ -1,4 +1,4 @@
-# fpt-fullstack-js-2019-Lukac
+# fpt-fullstack-jgs-2šáíšéľ019-Lukac
 
 
 ## Mal* ink* a
@@ -23,17 +23,43 @@ ish. iushf
     *jmpoajpwpop
 * iuhasuisyh9idu
 
-uihdauisohjdoai
+uihdauisohjdoai                     nkjhnkl
 
 1. iushf
-2. hfuish
+2. hfudfsaaish
+3. hfiuehFREJQTIťžčšťčľšoijf            ýá
 
-2. hfuish
 
 
-. iushf
-    2. hfuish
-    3. hfiuehoijf
 
-    * hdauioi oiwhjoic
-3. hfiuehoijf
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+dfdhnjaflihajufl
