@@ -9,7 +9,7 @@ s malia kjnecka jwnadn
 * hdoa h jakl ijoijd
 
     1. iushf
-    2. hfu. iushf
+    2. hfu. hgiushf
     2. hfuish
     3. hfiuehoijf
 ish. iushf
